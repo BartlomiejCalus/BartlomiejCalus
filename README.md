@@ -1,4 +1,4 @@
-Nice to see you here on my profile, make yourself comfortable and have a good day.😊
+Hi, have a good day.😊
 
 🔸I'm a fifth-year student at the Silesian University of Technology.🔸<br/>
 🔸I'm fascinated by programming and the whole world associated with it.🔸<br/>
